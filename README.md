@@ -1,4 +1,4 @@
-### Hi there, I'm Muhammad Sadiq! 👋
+### Hi there, I'm Muhammad Sadiq Ajmal ! 👋
 
 🚀 **Software Engineer | AI/ML Enthusiast | Full-Stack Developer**
 
